@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sujal.ihrr@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/12ABLFeKnCUA6BHYzZfMEyBWreusGl-XE/view?usp=sharing)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1CLmwXTpRJEKOOj-VC55qxeQdIL5uo8gv/view?usp=sharing)
 
 
 
