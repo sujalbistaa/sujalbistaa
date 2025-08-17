@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sujalbistaa&label=Profile%20views&color=0e75b6&style=flat" alt="sujalbistaa" /> </p>
 
-- 📫 How to reach me **sujal.ihrr@gmail.com**
+- 📫 How to reach me **sujalbist93@gmail.com**
 
 - 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1CLmwXTpRJEKOOj-VC55qxeQdIL5uo8gv/view?usp=sharing)
 
