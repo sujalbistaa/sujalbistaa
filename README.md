@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **sujalbist93@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1qwf0ddNNhnjeP7C3CIkHpe82dGC-nMM6/view?usp=sharing)
 
 
 
